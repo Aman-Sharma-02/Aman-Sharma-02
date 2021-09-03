@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Aman Sharma working as a associate software engineer at Tricon Infotech.
+- 👋 Hi, I’m Aman Sharma working as a associate software engineer at Tricon Infotech Pvt. Ltd.
 - 👀 My Aim in life is to share creative ideas with the organization and to convert my potential into the best possible effort.
 - 📫 Mail me at Aman.Sharma@Triconinfotech.com
 
